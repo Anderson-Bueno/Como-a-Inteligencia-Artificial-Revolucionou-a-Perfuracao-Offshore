@@ -1,0 +1,1 @@
+# Como-a-Inteligencia-Artificial-Revolucionou-a-Perfuracao-Offshore
